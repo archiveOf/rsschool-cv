@@ -4,9 +4,9 @@
 ---
 
 ### Contact information:
-**Phone:** +79054738245
-**E-mail:** chop.chop.rock.pop@gmail.com
-**Telegram:** @ilya_rrr
+* **Phone:** +79054738245
+* **E-mail:** chop.chop.rock.pop@gmail.com
+* **Telegram:** @ilya_rrr
 
 ---
 
